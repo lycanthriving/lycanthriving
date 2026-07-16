@@ -19,7 +19,7 @@
 <br>i'm usually in safe #2 these days due to paranoia, but i can be found on safe #1 occasionally for regi events, game hostings, or just to be around my friends!! i love my friends, they are awesome sauce!! /p
 </p>
 <p align="right">
-<br><i>please dncopy cosplay skins 1:1 <sup><sub>(and dncopy oc skins at all)</sub></sup></i> !  heavy inspiration is completely fine, just make sure you use my skins as a learning oppertunity on how to make skins in a different style rather than a "freebie" !
+<br><i>please dncopy cosplay skins 1:1 (and dncopy oc skins at all)</i> !  heavy inspiration is completely fine, just make sure you use my skins as a learning oppertunity on how to make skins in a different style rather than a "freebie" !
 <br><sup><sub>if you'd like, you can even whisper or dm me about what color palette(s), items, or anything that i used and i'd happily give you them !</sub></sup>
 </p>
 
@@ -29,6 +29,7 @@
 <details><summary><sup><sub>"what do all these abbreviations mean?"</sub></sup></summary> 
 <br>"dni" means "do not interact"
   <br>"dncopy" (also known as "dnc") means "do not copy"
+  <br>"oc" means "original character", that means the character is fully made by the user and is not a cosplay
 <br>"c+h" means "cuddle + hide" (or "cover + hide"), meaning you can "cuddle" (sit very closely to) and either cover or hide behind
 <br>"iwc" means "interact with caution"
 <br>"dniupartner" means "do not interact unless partner"
