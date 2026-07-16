@@ -19,7 +19,7 @@
 <br>i'm usually in safe #2 these days due to paranoia, but i can be found on safe #1 occasionally for regi events, game hostings, or just to be around my friends!! i love my friends, they are awesome sauce!! /p
 </p>
 <p align="right">
-<br><i>please dncopy skins 1:1</i> !  heavy inspiration is completely fine, just make sure you use my skins as a learning oppertunity on how to make skins rather than a "freebie" !
+<br><i>please dncopy cosplay skins 1:1 <sup><sub>(and dncopy oc skins at all)</sub></sup></i> !  heavy inspiration is completely fine, just make sure you use my skins as a learning oppertunity on how to make skins in a different style rather than a "freebie" !
 <br><sup><sub>if you'd like, you can even whisper or dm me about what color palette(s), items, or anything that i used and i'd happily give you them !</sub></sup>
 </p>
 
