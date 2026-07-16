@@ -38,8 +38,7 @@
   <br>"w2i" means "whisper to interact", this means someone just wants you to whisper them instead of speaking in local chat due to probably being semi-afk
   <br>"afk" means "away from keyboard", this means someone can't see their screen right now and / or can't reply very fast (if at all)
 </details>
-<p align="center">
-and now for the scary part... /silly
+<br>and now for the scary part... /silly
 <br>as mentioned above, i don't exactly have a "dni list", or at least, i don't have a <i>public</i> one. the reason that i don't is because they don't typically work, they draw in people you don't want to interact with and it can put you in heavy amounts of danger if you don't know how to deal with those who make you uncomfortable or worse! remember to be safe, okay?
 <br>i block freely, and that means i could just block you because i didn't like your vibe or you brought a weird energy into the room /hj
 <br>it's nothing personal usually! just how it goes, yk? if you'd like to ask me personally, you can find a way to and i'll probably explain it to you eventually, but if you'd prefer not to, you can check the list below to see if you fit into any of the reasons i usually will block someone
