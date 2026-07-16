@@ -43,7 +43,11 @@
 <br>i block freely, and that means i could just block you because i didn't like your vibe or you brought a weird energy into the room /hj
 <br>it's nothing personal usually! just how it goes, yk? if you'd like to ask me personally, you can find a way to and i'll probably explain it to you eventually, but if you'd prefer not to, you can check the list below to see if you fit into any of the reasons i usually will block someone
   <details><summary><sup><sub>"why did you block me?"</sub></sup></summary> 
-  THIS LIST NEEDS TO BE UPDATED AND IS EMPTY FOR NOW, SORRY!!!!</details>
+  the most common reason i block people is because they're either <b>sitting at protree</b> or they're <b>sitting too close to protree for me to be fully sure that they aren't a proshipper</b>
+    <br>otherwise, you probably fall into <a href="https://dni-criteria.carrd.co/">basic dni criteria</a>
+    <br>and if it's not either of those things, it might be because i fit into your dni list
+    <br>or because you started to become overwhelming or draining for me to talk to and i wanted to avoid you (usually will mean that you will be unblocked in ~a day or up to a week)
+    </details>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Micro+5&duration=3000&pause=500&color=988E85&center=true&width=435&lines=cut+back+down+to+my+knees%2C;gotta+get+back%2C+gotta+get+free...;cut+back+down+to+my+knees%2C;lean+back+now%2C+lean+back+and+breathe...)](https://git.io/typing-svg)
   
