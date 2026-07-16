@@ -44,9 +44,11 @@
 <br>it's nothing personal usually! just how it goes, yk? if you'd like to ask me personally, you can find a way to and i'll probably explain it to you eventually, but if you'd prefer not to, you can check the list below to see if you fit into any of the reasons i usually will block someone
   <details><summary><sup><sub>"why did you block me?"</sub></sup></summary> 
   the most common reason i block people is because they're either <b>sitting at protree</b> or they're <b>sitting too close to protree for me to be fully sure that they aren't a proshipper</b>
+    <br><sup><sub>if you "come out" to me as a proshipper or a darkshipper or anything like that, you will still be blocked. as much as i appreciate you keeping private about it, you are still breaking my boundary of not wanting people like that anywhere near me.</sub></sup>
     <br>otherwise, you probably fall into <a href="https://dni-criteria.carrd.co/">basic dni criteria</a>
-    <br>and if it's not either of those things, it might be because i fit into your dni list
-    <br>or because you started to become overwhelming or draining for me to talk to and i wanted to avoid you (usually will mean that you will be unblocked in ~a day or up to a week)
+    <br>and if it's not either of those things, it might be because i fit into your personal dni list,
+    <br>because you started to become overwhelming and / or draining for me to talk to and i just wanted to avoid you (usually will mean that you will be unblocked in ~a day or up to a week),
+    <br>or even because me interacting with you (or maybe even just <i>seeing</i> you) began causing paranoid episodes, anxiety spikes, or general moments of heightened stress which i'd rather avoid
     </details>
 
 [![Typing SVG](https://readme-typing-svg.demolab.com?font=Micro+5&duration=3000&pause=500&color=988E85&center=true&width=435&lines=cut+back+down+to+my+knees%2C;gotta+get+back%2C+gotta+get+free...;cut+back+down+to+my+knees%2C;lean+back+now%2C+lean+back+and+breathe...)](https://git.io/typing-svg)
