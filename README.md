@@ -27,7 +27,7 @@
 
 <br>—   c+h freely unless with friends ,  fandoms always iwc ,  ships dniupartner ,  ocwd ,  ovl ,   w2i heavily preferred unless we're in a party together ,   typically on and off afk / off-tab
 <details><summary><sup><sub>"what do all these abbreviations mean?"</sub></sup></summary> 
-<br>"dni" means "do not interact"
+"dni" means "do not interact"
   <br>"dncopy" (also known as "dnc") means "do not copy"
   <br>"oc" means "original character", that means the character is fully made by the user and is not a cosplay
 <br>"c+h" means "cuddle + hide" (or "cover + hide"), meaning you can "cuddle" (sit very closely to) and either cover or hide behind
