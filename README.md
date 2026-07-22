@@ -43,7 +43,8 @@
 <br>i block freely, and that means i could just block you because i didn't like your vibe or you brought a weird energy into the room /hj
 <br>it's nothing personal usually! just how it goes, yk? if you'd like to ask me personally, you can find a way to and i'll probably explain it to you eventually, but if you'd prefer not to, you can check the list below to see if you fit into any of the reasons i usually will block someone
   <details><summary><sup><sub>"why did you block me?"</sub></sup></summary> 
-  the most common reason i block people on pony.town is because they're either <b>sitting at protree</b> or they're <b>sitting too close to protree for me to be fully sure that they aren't a proshipper</b>
+  the most common reason i block people on pony.town is because they're either <b>sitting at protree</b>,
+    <br>or they're <b>sitting too close to protree for me to be fully sure that they aren't a proshipper</b> or friends with a proshipper
     <br><sup><sub>if you "come out" to me as a proshipper or a darkshipper or anything like that, you will still be blocked. as much as i appreciate you keeping private about it, you are still breaking my boundary of not wanting people like that anywhere near me.
     <br>i will also block anyone who's "neutral" to proshipping / darkshipping in any way.
     <br>as well as, obviously, anyone who walks around with their pony being any harmful paraphilia pride flags,
