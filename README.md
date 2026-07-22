@@ -51,7 +51,7 @@
     <br>or anyone who openly talks about having any harmful paraphilias, even if they're in a "purely fictional" context.
     <br>this is also including profiction, radqueers, and radinclusives.</sub></sup>
     <br>i will also block anyone who supports use of generative artifical intelligence or "proudly" uses it themself.
-    <br><sup><sub>this includes chatgpt, character.ai, janator.ai, and any form of ai chatbot.</sub></sup>
+    <br><sup><sub>this includes chatgpt, character.ai, janator.ai, and any form of ai chatbots.</sub></sup>
     <br>otherwise, you might fall into <a href="https://dni-criteria.carrd.co/">basic dni criteria</a>!
     <br>
     <br>and if it's not any of those things, it might be because i fit into your personal dni list,
