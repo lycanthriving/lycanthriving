@@ -18,10 +18,10 @@
 <br>hi there!! i'm lyke! i play pony.town pretty frequently and also infrequently? i have moments where i'm in and out of it
 <br>i'm usually in safe #2 these days due to paranoia, but i can be found on safe #1 occasionally for regi events, game hostings, or just to be around my friends!! i love my friends, they are awesome sauce!! /p
 </p>
+<br>
 <p align="right">
 <br><i>please dncopy cosplay skins 1:1 (and dncopy oc or gift skins at all)</i> !  heavy inspiration is completely fine, just make sure you use my skins as a learning oppertunity on how to make skins in a different style rather than a "freebie" !
-<br><sup><sub>if you'd like, you can even whisper or dm me about what color palette(s), items, or anything that i used and i'd happily give you them !
-<br>just to be crystal clear: please note that by "copy" i don't mean "DON'T MAKE THE SAME COSPLAYS AS ME!!!! GRRR!!! EYES TURN RED" no. i just mean make sure we look noticably different from one another so if we get put in the same room, we can't get mixed up, thats all i really care about tbh</sub></sup>
+<br><sup><sub>if you'd like, you can even whisper or dm me about what color palette(s), items, or anything that i used and i'd happily give you them !</sub></sup>
 </p>
 
 <img align="left" src="https://64.media.tumblr.com/c5d956f7b3910afd1c96d24134e24b18/0dfee0d2eb53110f-b5/s500x750/2d28bcb41c10f9718626cfe2fc2d437805be4106.pnj" width="45%" height="auto" data-canonical-src="https://i.postimg.cc/Z5wzyKd9/aaaa.png" style="max-width: 100%;">
