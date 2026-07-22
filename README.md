@@ -19,8 +19,9 @@
 <br>i'm usually in safe #2 these days due to paranoia, but i can be found on safe #1 occasionally for regi events, game hostings, or just to be around my friends!! i love my friends, they are awesome sauce!! /p
 </p>
 <p align="right">
-<br><i>please dncopy cosplay skins 1:1 (and dncopy oc skins at all)</i> !  heavy inspiration is completely fine, just make sure you use my skins as a learning oppertunity on how to make skins in a different style rather than a "freebie" !
-<br><sup><sub>if you'd like, you can even whisper or dm me about what color palette(s), items, or anything that i used and i'd happily give you them !</sub></sup>
+<br><i>please dncopy cosplay skins 1:1 (and dncopy oc or gift skins at all)</i> !  heavy inspiration is completely fine, just make sure you use my skins as a learning oppertunity on how to make skins in a different style rather than a "freebie" !
+<br><sup><sub>if you'd like, you can even whisper or dm me about what color palette(s), items, or anything that i used and i'd happily give you them !
+<br>just to be crystal clear: please note that by "copy" i don't mean "DON'T MAKE THE SAME COSPLAYS AS ME!!!! GRRR!!! EYES TURN RED" no. i just mean make sure we look noticably different from one another so if we get put in the same room, we can't get mixed up, thats all i really care about tbh</sub></sup>
 </p>
 
 <img align="left" src="https://64.media.tumblr.com/c5d956f7b3910afd1c96d24134e24b18/0dfee0d2eb53110f-b5/s500x750/2d28bcb41c10f9718626cfe2fc2d437805be4106.pnj" width="45%" height="auto" data-canonical-src="https://i.postimg.cc/Z5wzyKd9/aaaa.png" style="max-width: 100%;">
@@ -39,19 +40,20 @@
   <br>"afk" means "away from keyboard", this means someone can't see their screen right now and / or can't reply very fast (if at all)
 </details>
 <br>and now for the scary part... /silly
-<br>as mentioned above, i don't exactly have a "dni list", or at least, i don't have a <i>public</i> one. the reason that i don't is because they don't typically work, they draw in people you don't want to interact with and it can put you in heavy amounts of danger if you don't know how to deal with those who make you uncomfortable or could possibly get you into trouble
+<br>as mentioned above,   i don't exactly have a "dni list", or at least, i don't have a <i>public</i> one.   the reason that i don't is because they don't typically work, they draw in people you don't want to interact with and it can put you in heavy amounts of danger if you don't know how to deal with those who make you uncomfortable or could possibly get you into trouble
 <br>
-<br>i block freely, and that means i could just block you because i didn't like your vibe or you brought a weird energy into the room /hj
-<br>it's nothing personal usually! just how it goes, yk? if you'd like to ask me personally, you can find a way to and i'll probably explain it to you eventually, but if you'd prefer not to, you can check the list below to see if you fit into any of the reasons i usually will block someone
-<br><b>if you are a friend of mine</b>, i will usually not block you with no explanation! if i have blocked you with no talking beforehand, it's because we haven't interacted at all in at least a good few months   —   please do not get paranoid that i will block you or drop you out of nowhere, <i>i will bring it up eventually if i have a problem with you or your behavior</i> and give you chances to change your habits!
+<br>i block freely,   and that means i could just block you because i didn't like your vibe or you brought a weird energy into the room /hj
+<br>it's nothing personal usually! just how it goes, yk?   if you'd like to ask me personally, you can find a way to and i'll probably explain it to you eventually, but if you'd prefer not to, you can check the list below to see if you fit into any of the reasons i usually will block someone
+<br><b>if you are a friend of mine</b>, i will usually not block you with no explanation!   if i have blocked you with no talking beforehand, it's because we haven't interacted at all in at least a good few months   —   please do not get paranoid that i will block you or drop you out of nowhere, <i>i will bring it up eventually if i have a problem with you or your behavior</i> and give you chances to change your habits!
   <details><summary><sup><sub>"why did you block me?"</sub></sup></summary> 
   the most common reason i block people on pony.town is because they're either <b>sitting at protree</b>,
     <br>or they're <b>sitting too close to protree for me to be fully sure that they aren't a proshipper</b> or friends with a proshipper.
-    <br><sup><sub>if you "come out" to me as a proshipper or a darkshipper or anything like that, you will still be blocked. as much as i appreciate you keeping private about it, you are still breaking my boundary of not wanting people like that anywhere near me.
+    <br><sup><sub>if you "come out" to me as a proshipper or a darkshipper or anything like that, you will still be blocked.   as much as i appreciate you keeping private about it, you are still breaking my boundary of not wanting people like that anywhere near me.
     <br>i will also block anyone who's "neutral" to proshipping / darkshipping in any way.
     <br>as well as, obviously, anyone who walks around with their pony being any harmful paraphilia pride flags,
-    <br>or anyone who openly talks about having any harmful paraphilias, even if they're in a "purely fictional" context.
-    <br>this is also including profiction, radqueers, and radinclusives.</sub></sup>
+    <br>or anyone who openly talks about having any harmful paraphilias,   even if they're in a "purely fictional" context.
+    <br>this is also including <b>profiction</b>, <b>radqueers</b>, and <b>radinclusives</b>. endangering others is NOT fucking rad</sub></sup>
+    <br>the second most common is that i think you're a copytown bot.   i don't fuck with copytown. like at all
     <br>i will also block anyone who supports use of generative artifical intelligence or "proudly" uses it themself.
     <br><sup><sub>this includes chatgpt, character.ai, janator.ai, and any form of ai chatbots.</sub></sup>
     <br>otherwise, you might fall into <a href="https://dni-criteria.carrd.co/">basic dni criteria</a>!
