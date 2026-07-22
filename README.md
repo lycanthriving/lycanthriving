@@ -40,6 +40,7 @@
 </details>
 <br>and now for the scary part... /silly
 <br>as mentioned above, i don't exactly have a "dni list", or at least, i don't have a <i>public</i> one. the reason that i don't is because they don't typically work, they draw in people you don't want to interact with and it can put you in heavy amounts of danger if you don't know how to deal with those who make you uncomfortable or could possibly get you into trouble
+<br>
 <br>i block freely, and that means i could just block you because i didn't like your vibe or you brought a weird energy into the room /hj
 <br>it's nothing personal usually! just how it goes, yk? if you'd like to ask me personally, you can find a way to and i'll probably explain it to you eventually, but if you'd prefer not to, you can check the list below to see if you fit into any of the reasons i usually will block someone
 <br><b>if you are a friend of mine</b>, i will usually not block you with no explanation! if i have blocked you with no talking beforehand, it's because we haven't interacted at all in at least a good few months   —   please do not get paranoid that i will block you or drop you out of nowhere, <i>i will bring it up eventually if i have a problem with you or your behavior</i> and give you chances to change your habits!
@@ -57,6 +58,7 @@
     <br>
     <br>and if it's not any of those things, it might be because i fit into your personal dni list,
     <br>because me interacting with you (or maybe even just <i>seeing</i> you) began causing paranoid episodes, anxiety spikes, or general moments of heightened stress which i'd rather avoid,
+    <br><sup><sub>the above includes you having any skins, githubs, strawpages, etc that are fully intended to cause paranoia (using fake ip addresses, "this user has blocked you", "ⓘ this user is suspected to have been hacked", etc)</sub></sup>
     <br>or because you started to become overwhelming and / or draining for me to talk to and i just wanted to avoid you (usually will mean that you will be unblocked in ~a day or up to a week)
     </details>
 
