@@ -35,7 +35,7 @@
 <br>"dniupartner" means "do not interact unless partner"
   <br>"ocwd" means "occasinal crowd discomfort"
   <br>"ovl" means "occasional verbal loss" (this is just better wording for "osv" (which means "occasionally semi-verbal")), this means that sometimes i'll stop talking or typing
-  <br>"w2i" means "whisper to interact", this means someone just wants you to whisper them instead of speaking in local chat due to probably being semi-afk
+  <br>"w2i" means "whisper to interact", this means someone just wants you to whisper them instead of speaking in local chat due to probably being occasionally off-tab or having local chat bubbles hidden
   <br>"afk" means "away from keyboard", this means someone can't see their screen right now and / or can't reply very fast (if at all)
 </details>
 <br>and now for the scary part... /silly
