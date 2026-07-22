@@ -39,19 +39,20 @@
   <br>"afk" means "away from keyboard", this means someone can't see their screen right now and / or can't reply very fast (if at all)
 </details>
 <br>and now for the scary part... /silly
-<br>as mentioned above, i don't exactly have a "dni list", or at least, i don't have a <i>public</i> one. the reason that i don't is because they don't typically work, they draw in people you don't want to interact with and it can put you in heavy amounts of danger if you don't know how to deal with those who make you uncomfortable or worse! remember to be safe, okay?
+<br>as mentioned above, i don't exactly have a "dni list", or at least, i don't have a <i>public</i> one. the reason that i don't is because they don't typically work, they draw in people you don't want to interact with and it can put you in heavy amounts of danger if you don't know how to deal with those who make you uncomfortable or could possibly get you into trouble
 <br>i block freely, and that means i could just block you because i didn't like your vibe or you brought a weird energy into the room /hj
 <br>it's nothing personal usually! just how it goes, yk? if you'd like to ask me personally, you can find a way to and i'll probably explain it to you eventually, but if you'd prefer not to, you can check the list below to see if you fit into any of the reasons i usually will block someone
   <details><summary><sup><sub>"why did you block me?"</sub></sup></summary> 
   the most common reason i block people on pony.town is because they're either <b>sitting at protree</b>,
-    <br>or they're <b>sitting too close to protree for me to be fully sure that they aren't a proshipper</b> or friends with a proshipper
+    <br>or they're <b>sitting too close to protree for me to be fully sure that they aren't a proshipper</b> or friends with a proshipper.
     <br><sup><sub>if you "come out" to me as a proshipper or a darkshipper or anything like that, you will still be blocked. as much as i appreciate you keeping private about it, you are still breaking my boundary of not wanting people like that anywhere near me.
     <br>i will also block anyone who's "neutral" to proshipping / darkshipping in any way.
     <br>as well as, obviously, anyone who walks around with their pony being any harmful paraphilia pride flags,
     <br>or anyone who openly talks about having any harmful paraphilias, even if they're in a "purely fictional" context.
     <br>this is also including profiction, radqueers, and radinclusives.</sub></sup>
-    <br>i will also block anyone who supports use of generative artifical intelligence or uses it themself (unless they're trying to get themselves off of it), such as chatgpt, character.ai, janitor.ai, and so on
-    <br>otherwise, you might fall into <a href="https://dni-criteria.carrd.co/">basic dni criteria</a>
+    <br>i will also block anyone who supports use of generative artifical intelligence or "proudly" uses it themself.
+    <br><sup><sub>this includes chatgpt, character.ai, janator.ai, and any form of ai chatbot.</sub></sup>
+    <br>otherwise, you might fall into <a href="https://dni-criteria.carrd.co/">basic dni criteria</a>!
     <br>
     <br>and if it's not any of those things, it might be because i fit into your personal dni list,
     <br>because me interacting with you (or maybe even just <i>seeing</i> you) began causing paranoid episodes, anxiety spikes, or general moments of heightened stress which i'd rather avoid,
